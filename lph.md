@@ -1,10 +1,10 @@
-I arrived to work a little late, just like usual. My shoulder-length blond hair whipped behind me and my 4-inch heels clicked as I speed-walked through the main door to the office.
+I arrived to work a little late, just like usual. My shoulder-length blond hair whipped behind me. I was wearing 4-inch heels which clicked as I speed-walked through the main door to the office.
 
 "Sorry I'm late Mr. Peterson." I said. I pushed out my chest, emphasizing my E-cup breasts. I've found that can sometimes give me the edge I need in these kinds of situations.
 
-Mr. Peterson just grunted. The man stood 4'9", a veritable dwarf. Not the smallest man I'd seen but fairly tiny for this office. It's true what they say about short men, they really do have all the power in this world.
+Mr. Peterson grunted. The man stood 4'9", a veritable dwarf. Not the smallest man I'd seen but fairly tiny for this office. It's true what they say about short men, they really do have all the power in this world.
 
-From the office gossip I heard, Mr. Peterson got his job at the company from his father. But he quickly rose through the ranks of the company with his stature and friendly, round face. His tiny, slim-fat body was like the ones you'd see on the cover of Men's magazines. His diminutive height paired with his healthy-looking face and skin implied his wealthy upbringing. His family could obviously afford dietitian that would shape and grow him like a bonsai tree. He was provided a personalized diet that would minimize both growth and suffering from malnourishment, while maximizing health. Since he started working here, he had maintained his slim-fat body perfectly. Not so fat that you'd think him glutenous, but not so thin that you'd think him poor.
+From the office gossip I heard, Mr. Peterson got his job at the company from his father. But he quickly rose through the ranks of the company with his stature and friendly, round face. His tiny, slim-fat body was like the ones you'd see on the cover of Men's magazines. His diminutive height and healthy-looking face and skin implied his wealthy upbringing. His family could obviously afford a dietitian that would shape and grow him like a bonsai tree. The dietitian provided a personalized diet that would cut growth, while maximizing health. Since he started working here, he had maintained his slim-fat body perfectly. Not so fat that you'd think him glutenous, but not so thin that you'd think him poor.
 
 Mr. Peterson was lucky. Most of us got one dietitian for the entire public school district. Without a personalized diet plan, many young men experienced their natural growth spurts. Some grew as tall as 5'8". A few unlucky bastards could even get as tall as 5'9".
 
@@ -20,9 +20,9 @@ He smiled, ignoring me. "We have a new employee," he said. Usually I'd get a sho
 
 A nobler woman would feel pity for this poor man. With a dick that big he must still be a virgin. But I could only feel disgust. Where were his parents, his school dietitian, his peers? How could they let him get like that? Did he eat them?
 
-And his muscles were enormous. They flexed and stretched the fabric of his clothes every time he moved. It's rare and shameful for someone to have muscles like that. How could you eat so much food to sustain your daily activities and the exercise it takes to grow and maintain them. There are starving kids around the world and he's wasting his calories on exercise?
+And his muscles were enormous. They flexed and stretched the fabric of his clothes every time he moved. It's rare and shameful for someone to have muscles like that. How could you eat so much food that you could waste calories on building and sustaining your muscles. There are starving kids around the world and he's wasting his calories on exercise?
 
-I hated him. He looked like a brute. Like a savage gorilla. But I noticed a brand new feeling. Something I had never in my life felt before. There was an aching feeling in my private parts, and they seemed to be getting moist. I clamped my legs closed and rubbed them together to get rid of it. It felt good, but it didn't help. I wondered momentarily if I should see a doctor. Maybe if it doesn't resolve by the end of the day.
+I hated him. He looked like a brute. Like a savage gorilla. But I noticed a brand new feeling. Something I had never in my life felt before. There was an aching feeling in my private parts, and they seemed to be getting moist. I clamped my legs closed and rubbed them together to get rid of it. It felt good, but it didn't help. I wondered if I should see a doctor. Maybe if it doesn't resolve by the end of the day.
 
 "Are you Jennifer?" he asked in a rich, baritone voice. He stood up out of his chair, towering over me. "I'm Sean," he said, extending a massive hand. I was almost too awestruck to move, but I forced myself to shake his hand. His hand closed around mine, covering it completely. The aching feeling intensified and I felt some fluid escape my vagina. Was I allergic to him?
 
@@ -60,7 +60,7 @@ I felt like a dam had burst in my private parts and the aching feeling returned,
 
 "Exactly!"
 
-"You know what I think? big guys like that should be ashamed of himself. I'm sorry, but it's the truth."
+"You know what I think? Big guys like that should be ashamed of himself. I'm sorry, but it's the truth."
 
 "Yeah, there's like enough of him to make two men."
 
@@ -124,7 +124,7 @@ I nodded, "You can save a lot of money that way."
 
 We caught a cab back to my apartment and walked inside.
 
-"My bedroom's over here," I said guiding him to the bed. I suddenly rememberd the soaked toilet paper and panties. What if he thought there was something wrong with my lady parts? "I've just got to take a quick trip to the bathroom," I said.
+"My bedroom's over here," I said guiding him to the bed. I suddenly remembered the soaked toilet paper and panties. What if he thought there was something wrong with my lady parts? "I've just got to take a quick trip to the bathroom," I said.
 
 "No problem, I'll be waiting for you here."
 
@@ -142,7 +142,7 @@ Without a word, he lay down next to me. I licked his penis and it spring to life
 
 "It sure is," he replied.
 
-We ground our bodies together. It felt nice--both his warm skin and the pressure on my lady parts. I was enjoying it when suddenly the image of Sean stretching in the cubicle jumped into my brain banishing all other thoughts. Instantly the aching and wetness returned. I tried to think about something else. Anything else. But it was no use. I couldn't get the thought of those great, big, brutish, bulging muscles out of my mind.
+We ground our bodies together. It felt nice--both his warm skin and the pressure on my lady parts. I was enjoying it when suddenly the image of Sean stretching in the cubicle jumped into my brain. It took over, banishing all other thoughts. Instantly the aching and wetness returned. I tried to think about something else. Anything else. But it was no use. I couldn't get the thought of those great, big, brutish, bulging muscles out of my mind.
 
 The aching was getting to me. I felt like I needed something but I didn't know what it was. I pressed my hips against my date. It felt good but it wasn't enough. So I drew my hips back and pressed them forward again. Then I did it again, and again, and again. I moaned in frustration. The ache was still there. And my nether regions were getting wetter. He'd notice any moment now.
 
@@ -206,7 +206,7 @@ I rolled off him instantly, and groaned in frustration. "I just need--"
 
 "Yeah but do you have any guesses?"
 
-"Well I have one but it's extremely rare. I've never encountered it but there is some literature out there about patients reporting these same symptoms when near certain men. But like I said, it's extremely rare."
+"Well I have one but it's extremely rare. I've never encountered it but there is some literature out there. Patients reported these same symptoms when near certain men. But like I said, it's extremely rare."
 
 "And what would be the cure for that?"
 
@@ -236,7 +236,7 @@ I felt my stomach drop. "Anything?"
 
 "Well we'll just take some blood and samples and let you know in a few days."
 
-I left the doctor's office and headed home to lie in bed. Sean popped back into my thoughts and the aching returned. But it felt different this time. It wasn't just an ache. It was an emptiness, and an urge to fill it. At first I thought I could just deal with the need, but it was just getting worse the more I thought about it, and therefore, Sean. I couldn't take it anymore. I grabbed my phone and texted Sean.
+I left the doctor's office and headed home to lie in bed. Sean popped back into my thoughts and the aching returned. But it felt different this time. It wasn't just an ache. It was an emptiness, and an urge to fill it. At first I thought I could ignore it, but it was just getting worse the more I thought about it, and therefore, Sean. I couldn't take it anymore. I grabbed my phone and texted Sean.
 
 "Hey newbie, you wanna go out and get drinks?"
 
@@ -244,7 +244,7 @@ My phone buzzed, "You sure you want to be seen with me?"
 
 He had a point. "Maybe just come to my place?" I sent him my address
 
-"Too late. Now I want drinks. You're buying. Joe's Pub." Joe's pub was right across the street from me. People would see me with that brute. I was about to send back an angry text, but my aching vagina had the last word. I sighed and put on some tight jeans to accentuate my ass, and a t-shirt. I grabbed a fistful of toilet paper and padded my panties. I went across the street and entered Joe's Pub to wait. I didn't need to wait long. Sean had to crouch and twist his torso to enter the pub. Even when he got in, the ceilings were only about a 6ft clearance, so he had to duck until he made his way to the barstool next to me. He looked like the only adult in a room full of children. He sat down and the barstool creaked in protest. All eyes were looking at us.
+"Too late. Now I want drinks. You're buying. Joe's Pub." Joe's pub was right across the street from me. People would see me with that brute. I was about to send back an angry text, but my aching vagina had the last word. I sighed and put on some tight jeans to accentuate my ass, and a t-shirt. I grabbed a fistful of toilet paper and padded my panties. I went across the street and entered Joe's Pub to wait. I didn't need to wait long. Sean had to crouch and twist his torso to enter the pub. The ceilings had only about a 6ft clearance. So even when he got through the door he had to crouch until he made his way to the barstool next to me. He looked like the only adult in a room full of children. He sat down and the barstool creaked in protest. All eyes were looking at us.
 
 "Nice to see you Jennifer. I hope you're feeling better."
 
@@ -348,7 +348,7 @@ I just nodded. I yelped as I realized his dick was now fully hard. It was huge a
 
 "You don't want to know."
 
-He effortlessly repositioned my body with our crotches touching and gently beat his cockhead against my vagina with a wet slapping sound. Then he rubbed it up and down the slit. "Please," I whimpered uncontrollably. He began pushing it against my tight hole. I moaned louder and louder until I felt it pop in.
+He effortlessly repositioned my body with our crotches touching. Then he gently beat his cockhead against my vagina with a wet slapping sound. Then he rubbed it up and down the slit. "Please," I whimpered uncontrollably. He began pushing it against my tight hole. I moaned louder and louder until I felt it pop in.
 
 The feeling was exquisite. I felt fuller than I'd ever been, but still I wanted more.
 
