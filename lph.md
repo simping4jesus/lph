@@ -1,16 +1,16 @@
 I arrived to work a little late, just like usual. My shoulder-length blond hair whipped behind me. I was wearing 4-inch heels which clicked as I speed-walked through the main door to the office.
 
-"Sorry I'm late Mr. Peterson." I said. I pushed out my chest, emphasizing my E-cup breasts. I've found that can sometimes give me the edge I need in these kinds of situations.
+"Sorry I'm late Mr. Peterson," I said. I pushed out my chest, emphasizing my E-cup breasts. I've found that can sometimes give me the edge I need in these kinds of situations.
 
 Mr. Peterson grunted. The man stood 4'9", a veritable dwarf. Not the smallest man I'd seen but fairly tiny for this office. It's true what they say about short men, they really do have all the power in this world.
 
-From the office gossip I heard, Mr. Peterson got his job at the company from his father. But he quickly rose through the ranks of the company with his stature and friendly, round face. His tiny, slim-fat body was like the ones you'd see on the cover of Men's magazines. His diminutive height and healthy-looking face and skin implied his wealthy upbringing. His family could obviously afford a dietitian that would shape and grow him like a bonsai tree. The dietitian provided a personalized diet that would cut growth, while maximizing health. Since he started working here, he had maintained his slim-fat body perfectly. Not so fat that you'd think him glutenous, but not so thin that you'd think him poor.
+From the office gossip I heard, Mr. Peterson got his job at the company from his father. But he quickly rose through the ranks of the company with his stature and friendly, round face. His tiny, slim-fat body was like the ones you'd see on the cover of Men's magazines. His diminutive height and healthy-looking face and skin implied his wealthy upbringing. His family could obviously afford a dietitian that would shape and grow him like a bonsai tree. The dietitian provided a personalized diet that would cut growth while maximizing health. Since he started working here, he had maintained his slim-fat body perfectly. Not so fat that you'd think him glutenous, but not so thin that you'd think him poor.
 
 Mr. Peterson was lucky. Most of us got one dietitian for the entire public school district. Without a personalized diet plan, many young men experienced their natural growth spurts. Some grew as tall as 5'8". A few unlucky bastards could even get as tall as 5'9".
 
 "It won't happen again," I lied.
 
-He smiled, ignoring me. "We have a new employee," he said. Usually I'd get a short lecture on how important it was for everyone to be in the office on time so work could begin. But it seemed he'd skipped that today. That means he wants something from me. Probably something big. "I was hoping you'd show him around." He grinned, showing me his perfectly white teeth.
+He smiled, ignoring me. "We have a new employee," he said. Usually, I'd get a short lecture on how important it was for everyone to be in the office on time so work could begin. But it seemed he'd skipped that today. That means he wants something from me. Probably something big. "I was hoping you'd show him around." He grinned, showing me his perfectly white teeth.
 
 "Of course, Mr. Peterson," I said, happy to avoid the lecture.
 
@@ -20,7 +20,7 @@ He smiled, ignoring me. "We have a new employee," he said. Usually I'd get a sho
 
 A nobler woman would feel pity for this poor man. With a dick that big he must still be a virgin. But I could only feel disgust. Where were his parents, his school dietitian, his peers? How could they let him get like that? Did he eat them?
 
-And his muscles were enormous. They flexed and stretched the fabric of his clothes every time he moved. It's rare and shameful for someone to have muscles like that. How could you eat so much food that you could waste calories on building and sustaining your muscles. There are starving kids around the world and he's wasting his calories on exercise?
+And his muscles were enormous. They flexed and stretched the fabric of his clothes every time he moved. It's rare and shameful for someone to have muscles like that. How could you eat so much food that you could waste calories on building and sustaining your muscles? There are starving kids around the world and he's wasting his calories on exercise?
 
 I hated him. He looked like a brute. Like a savage gorilla. But I noticed a brand new feeling. Something I had never in my life felt before. There was an aching feeling in my private parts, and they seemed to be getting moist. I clamped my legs closed and rubbed them together to get rid of it. It felt good, but it didn't help. I wondered if I should see a doctor. Maybe if it doesn't resolve by the end of the day.
 
@@ -28,17 +28,17 @@ I hated him. He looked like a brute. Like a savage gorilla. But I noticed a bran
 
 "Nice to, uh, meet you, um Sean. I'm sorry, I'm just suddenly not feeling very well."
 
-"I'm sorry to hear that," he said. God that brute sounded like a therapist. Maybe he thought it made him seem less imposing. "I'll be right back. But here's my phone number. Text me if you need anything." I scribbled down my phone number on the corner of a piece of paper and handed it to him.
+"I'm sorry to hear that," he said. God, that brute sounded like a therapist. Maybe he thought it made him seem less imposing. "I'll be right back. But here's my phone number. Text me if you need anything." I scribbled down my phone number on the corner of a piece of paper and handed it to him.
 
 "Thank you. I'll text you so you have mine."
 
-I ran off to find the ladies room. My phone buzzed on the way. "It's Sean," was all the text message said.
+I ran off to find the ladies' room. My phone buzzed on the way. "It's Sean," was all the text message said.
 
 I entered the bathroom and splashed some water on my face. I found a stall at the end of the room and entered it. The aching feeling seemed to be subsiding but I still felt a bit wet. I grabbed some toilet paper, lifted up my skirt, pulled my panties down, and dabbed at my nether regions. I noticed, to my disappointment, there was a large wet spot on my panties. I inserted some of the dry toilet paper into my panties and pulled them back up, the rest I put in my handbag.
 
 I made my way back to my cubicle where I found Sean in the middle of stretching. He threw his arms behind his head, pushed his chest out, and groaned. His arms and back exploded with a roiling mass of muscles, stretching his shirt to capacity. His undersized shirt untucked itself and I caught a glimpse of skin.
 
-I felt like a dam had burst in my private parts and the aching feeling returned, slamming into me like a train. I turned on my heel and made my way straight to my friend Amy's cubicle. Fortunately the toilet paper must have caught most of the discharge.
+I felt like a dam had burst in my private parts and the aching feeling returned, slamming into me like a train. I turned on my heel and made my way straight to my friend Amy's cubicle. Fortunately, the toilet paper must have caught most of the discharge.
 
 "Jennifer!" Amy shrieked. "You're looking good today girl!"
 
@@ -46,7 +46,7 @@ I felt like a dam had burst in my private parts and the aching feeling returned,
 
 "They are! My boyfriend got them for me and I finally got around to wearing them."
 
-"Hey have you seen the new guy?"
+"Hey, have you seen the new guy?"
 
 "The big brute? Yeah. Gross."
 
@@ -136,7 +136,7 @@ I went to the bathroom and took off all my clothes. I hid the panties under my d
 
 "Very nice," I said lying on the bed. "Should we get started?"
 
-Without a word, he lay down next to me. I licked his penis and it spring to life instantly. He got on top of me and carefully inserted it.
+Without a word, he lay down next to me. I licked his penis and it sprung to life instantly. He got on top of me and carefully inserted it.
 
 "Is it in yet?" I asked.
 
@@ -154,11 +154,11 @@ I didn't respond. I drew my hips all the way back into the bed and slammed them 
 
 I slammed my hips into him a few more times.
 
-"Is something wrong down there, lady? You're kind of wet. Is that supposed to happen? Actually you're really, really--"
+"Is something wrong down there, lady? You're kind of wet. Is that supposed to happen? Actually, you're really, really--"
 
 I wailed in frustration. I sat up and grabbed my date's body, lifting him into the air, and then slamming him down onto the bed. He bounced. I threw myself on top of him and started slamming my privates onto his.
 
-"Fuck you Sean!" I yelled.
+"Fuck you, Sean!" I yelled.
 
 "Sean? Who's--"
 
@@ -170,7 +170,7 @@ I just kept pounding him with my hips.
 
 He pressed against me but he was too small and weak for me to notice. I was still pounding him when he yelled, "Stop lady!"
 
-I rolled off him instantly, and groaned in frustration. "I just need--"
+I rolled off him instantly and groaned in frustration. "I just need--"
 
 "You need what?"
 
@@ -182,7 +182,7 @@ I rolled off him instantly, and groaned in frustration. "I just need--"
 
 "What you need is some help lady. Goodbye." He put on his clothes and left me lying on the bed, aching. My crotch was soaked. I grabbed my phone to schedule an appointment with my doctor. The next available one was tomorrow morning. Perfect. I scheduled the appointment and called in sick for tomorrow.
 
-"So what seems to be the problem ma'am? Anything specific or you just want a checkup?"
+"So what seems to be the problem, ma'am? Anything specific or you just want a checkup?"
 
 "Actually yeah, there is something specific. I think I'm, um, allergic to this man in my office."
 
@@ -190,7 +190,7 @@ I rolled off him instantly, and groaned in frustration. "I just need--"
 
 "There's an ache...down there," I gestured to my crotch. "And it gets wet."
 
-"Well it's always wet."
+"Well, it's always wet."
 
 "Like really wet."
 
@@ -202,9 +202,9 @@ I rolled off him instantly, and groaned in frustration. "I just need--"
 
 "What do you think it is?"
 
-"Well we won't know for sure until we do some bloodwork."
+"Well, we won't know for sure until we do some bloodwork."
 
-"Yeah but do you have any guesses?"
+"Yeah, but do you have any guesses?"
 
 "Well I have one but it's extremely rare. I've never encountered it but there is some literature out there. Patients reported these same symptoms when near certain men. But like I said, it's extremely rare."
 
@@ -226,17 +226,17 @@ I rolled off him instantly, and groaned in frustration. "I just need--"
 
 "What if it's too big?"
 
-"Well that's unlikely. Most penises are very small. But your vagina is an incredible organ. It can stretch to fit almost anything in it."
+"That's unlikely. Most penises are very small. But your vagina is an incredible organ. It can stretch to fit almost anything in it."
 
 I felt my stomach drop. "Anything?"
 
-"Well an entire baby for one thing. Any other questions?"
+"Well, an entire baby for one thing. Any other questions?"
 
 "N-No that's all for now."
 
-"Well we'll just take some blood and samples and let you know in a few days."
+"We'll just take some blood and samples and let you know in a few days."
 
-I left the doctor's office and headed home to lie in bed. Sean popped back into my thoughts and the aching returned. But it felt different this time. It wasn't just an ache. It was an emptiness, and an urge to fill it. At first I thought I could ignore it, but it was just getting worse the more I thought about it, and therefore, Sean. I couldn't take it anymore. I grabbed my phone and texted Sean.
+I left the doctor's office and headed home to lie in bed. Sean popped back into my thoughts and the aching returned. But it felt different this time. It wasn't just an ache. It was an emptiness, and an urge to fill it. At first, I thought I could ignore it, but it was just getting worse the more I thought about it, and therefore, Sean. I couldn't take it anymore. I grabbed my phone and texted Sean.
 
 "Hey newbie, you wanna go out and get drinks?"
 
@@ -246,9 +246,9 @@ He had a point. "Maybe just come to my place?" I sent him my address
 
 "Too late. Now I want drinks. You're buying. Joe's Pub." Joe's pub was right across the street from me. People would see me with that brute. I was about to send back an angry text, but my aching vagina had the last word. I sighed and put on some tight jeans to accentuate my ass, and a t-shirt. I grabbed a fistful of toilet paper and padded my panties. I went across the street and entered Joe's Pub to wait. I didn't need to wait long. Sean had to crouch and twist his torso to enter the pub. The ceilings had only about a 6ft clearance. So even when he got through the door he had to crouch until he made his way to the barstool next to me. He looked like the only adult in a room full of children. He sat down and the barstool creaked in protest. All eyes were looking at us.
 
-"Nice to see you Jennifer. I hope you're feeling better."
+"Nice to see you, Jennifer. I hope you're feeling better."
 
-"You too. Sorry for running out on you." I called the bartender over and ordered us a couple of drinks.
+"You too. Sorry for running out on you." I called the bartender over and ordered a couple of drinks.
 
 "So what did you want to talk to me about?"
 
@@ -270,13 +270,13 @@ He smirked. Fuck. I felt drenched. No amount of makeshift toilet-paper padding c
 
 "Last night." His smirk grew into a grin.
 
-The drinks arrived and we both sipped them quietly. His eyes flicked down to my crotch where a small wet spot had appeared and was growing. He put his enormous hand on my shoulder and looked me in the eyes, "Jennifer," the wet spot on my pants grew larger. The giant bulge in his pants twitched. Tall guys and big dicks are supposed to be gross and pathetic. How did this man have so much power over me? I hated him so much. Didn't I? I couldn't tell any more. Maybe I kind of...liked him. Impossible. But I couldn't think straight. I ached so much. I needed him so badly. I was so empty.
+The drinks arrived and we both sipped them quietly. His eyes flicked down to my crotch where a small wet spot had appeared and was growing. He put his enormous hand on my shoulder and looked me in the eyes, "Jennifer," the wet spot on my pants grew larger. The giant bulge in his pants twitched. Tall guys and big dicks are supposed to be gross and pathetic. How did this man have so much power over me? I hated him so much. Didn't I? I couldn't tell anymore. Maybe I kind of...liked him. Impossible. But I couldn't think straight. I ached so much. I needed him so badly. I was so empty.
 
 "Do you want to..." I trailed off.
 
 "Sorry. Could you repeat that?"
 
-I couldn't. I couldn't say out loud that I wanted him to have sex with me. That I needed him. But I wasn't in charge any more. My vagina was the one calling the shots.
+I couldn't. I couldn't say out loud that I wanted him to have sex with me. That I needed him. But I wasn't in charge anymore. My vagina was the one calling the shots.
 
 "Do you want to--"
 
@@ -284,15 +284,15 @@ I couldn't. I couldn't say out loud that I wanted him to have sex with me. That 
 
 He got up and the seat creaked in relief and headed towards my apartment. I followed a few agonizing minutes later. Judge me if you want, I know the rest of the bar did. Everyone's got their weird fetish. I guess mine is just big, muscular guys.
 
-Sean was waiting for me outside my apartment. When I got out of the elevator, I ran to him. I lost my balance in my heels and almost fell over but Sean caught me before I could hit the ground. I fumbled my keys but finally unlocked the door. We both shucked our clothes off down to our underwear. I took off my soaked panties with the toilet-paper padding and threw them aside. They hit the floor with a wet slap. Sean lied down on the bed in his underwear. "Do you want to do the honors?" he asked.
+Sean was waiting for me outside my apartment. When I got out of the elevator, I ran to him. I lost my balance in my heels and almost fell over but Sean caught me before I could hit the ground. I fumbled for my keys but finally unlocked the door. We both shucked our clothes off down to our underwear. I took off my soaked panties with the toilet-paper padding and threw them aside. They hit the floor with a wet slap. Sean lied down on the bed in his underwear. "Do you want to do the honors?" he asked.
 
 "What do you mean."
 
 "I mean remove my underwear."
 
-I timidly approached him and started pealing it off. I shrieked when I saw it. Sean just laughed.
+I timidly approached him and started peeling it off. I shrieked when I saw it. Sean just laughed.
 
-"That was Amy's reaction too." He grabbed me under the arms and lifted me on top of him. "But she got used to it. We'll go slow." He reached his fingers down to my crotch and smiled. "Wow you're really ready."
+"That was Amy's reaction too." He grabbed me under the arms and lifted me on top of him. "But she got used to it. We'll go slow." He reached his fingers down to my crotch and smiled. "Wow, you're really ready."
 
 "Ready for what?"
 
@@ -318,7 +318,7 @@ I gave it a quick lick.
 
 "Lick it, rub it, play with it."
 
-I took it from him. It was so heavy. I tenderly gave it a kiss on tip and lapped the skin around it with my tongue.
+I took it from him. It was so heavy. I tenderly gave it a kiss on the tip and lapped the skin around it with my tongue.
 
 "You don't have to be so careful with him. He's a big boy. He can handle it. Try sucking on it."
 
@@ -328,11 +328,11 @@ I took it from him. It was so heavy. I tenderly gave it a kiss on tip and lapped
 
 It was so big my hands couldn't fit around the whole shaft. But I dutifully ran my hands up and down the shaft. It was working. To my horror, the penis began to inflate. Sean grabbed my body and flipped me around. My crotch was now in his face while I continued to work his penis with my hands. I yelped in surprise.
 
-"Sean what are you doing?"
+"Sean, what are you doing?"
 
 Suddenly I felt his tongue on the little nub at the top of my vagina. He was licking and sucking.
 
-"What are you--wow. Oh wow. What the--oh God. Oh my God. What the fuck. Holy shit. What is that feeling. Oh God. What is happening to meee." I shrieked and lost control of my body.
+"What are you--wow. Oh wow. What the--oh God. Oh my God. What the fuck. Holy shit. What is that feeling? Oh, God. What is happening to meee." I shrieked and lost control of my body.
 
 "You like that?"
 
@@ -362,12 +362,12 @@ My thoughts were interrupted by a wave of nausea. "Oops, sorry about that," Sean
 
 "Just hit the end there. I'll try to be more careful."
 
-He began pulling his penis out of me. "Don't leave" I whimpered. Then he shoved it back in. Again and again, in and out. I didn't even have time to prepare before another orgasm washed over me. Was someone screaming? Oh it's me. Sean just kept going, in and out. It felt like my consciousness was off balance, trying to right itself. Every thrust knocking it this way and that. One orgasm overlapped with another. Then Sean started going faster, and faster, and faster. Finally he groaned and made one more thrust. My vagina suddenly felt warm. Very warm. Wetter and gooier than ever before. Finally he pulled out of me. White goo poured from the opening.
+He began pulling his penis out of me. "Don't leave" I whimpered. Then he shoved it back in. Again and again, in and out. I didn't even have time to prepare before another orgasm washed over me. Was someone screaming? Oh, it's me. Sean just kept going, in and out. It felt like my consciousness was off-balance, trying to right itself. Every thrust knocking it this way and that. One orgasm overlapped with another. Then Sean started going faster, and faster, and faster. Finally, he groaned and made one more thrust. My vagina suddenly felt warm. Very warm. Wetter and gooier than ever before. He pulled out of me and white goo poured from the opening.
 
 "Oops, forgot the towels again," he mumbled. I collapsed onto his chest. He shifted me to the side and got up off the bed. I could barely move. I just kept stroking my hands all over my skin feeling the electric pleasure waves.
 
 "You should probably go pee soon." He said.
 
-"Uh huh," I said, barely listening.
+"Uh-huh," I said, barely listening.
 
 "Anyway," Sean started putting his clothes back on. "Call me if you need anything. Otherwise, I'll see you tomorrow."
